@@ -24,5 +24,5 @@
 
 ## 📩 Контакты
 По вопросам инвестиций и сотрудничества:  
-📧 nightzone.business@yandex.ru  
+📧 vhromotov@yandex.ru  
 📍 Новосибирск
